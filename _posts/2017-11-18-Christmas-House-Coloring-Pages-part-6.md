@@ -6,7 +6,7 @@ categoties: [Coloring Pages]
 ---
 {{ page.title }}
 ================
-> This page is about [Christmas House Coloring Pages](https://freecoloringpages.github.io/). A gingerbread house is made of cookie dough, cut and baked into the appropriate shapes with which to build it. The usual material is crisp ginger biscuit made of gingerbread – the ginger nut. Another type of model-making with gingerbread uses a boiled dough that can be moulded like clay to form edible statuettes or other decorations. These houses, covered with a variety of candies and icing, are popular Christmas decorations, often built by children with the help of their parents. Souce: https://wikipedia.org/
+> This page is about [Christmas House Coloring Pages](https://freecoloringpages.github.io/). A gingerbread house is made of cookie dough, cut and baked into the appropriate shapes with which to build it. The usual material is crisp ginger biscuit made of gingerbread – the ginger nut. Another type of model-making with gingerbread uses a boiled dough that can be moulded like clay to form edible statuettes or other decorations. These houses, covered with a variety of candies and icing, are popular Christmas decorations, often built by children with the help of their parents. Source: https://wikipedia.org/
 
 **In the series of Christmas House Coloring Pages:**
 
@@ -30,7 +30,7 @@ categoties: [Coloring Pages]
 ## Christmas House Coloring Pages No. 54
 ![Christmas House Coloring Pages 54](https://freecoloringpages.github.io/img/Christmas-House-Coloring-Pages%20(54).jpg "Christmas House Coloring Pages 54")
 
-<script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script> <!-- AdsTextOnly-autoizi --> <ins class="adsbygoogle" style="display:block" data-ad-client="ca-pub-6753140515841889" data-ad-slot="9107959873" data-ad-format="auto"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({});</script>
+<script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
 
 ## Christmas House Coloring Pages No. 55
 ![Christmas House Coloring Pages 55](https://freecoloringpages.github.io/img/Christmas-House-Coloring-Pages%20(55).jpg "Christmas House Coloring Pages 55")
@@ -44,7 +44,7 @@ categoties: [Coloring Pages]
 ## Christmas House Coloring Pages No. 58
 ![Christmas House Coloring Pages 58](https://freecoloringpages.github.io/img/Christmas-House-Coloring-Pages%20(58).jpg "Christmas House Coloring Pages 58")
 
-<script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script> <!-- AdsTextOnly-autoizi --> <ins class="adsbygoogle" style="display:block" data-ad-client="ca-pub-6753140515841889" data-ad-slot="9107959873" data-ad-format="auto"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({});</script>
+<script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
 
 ## Christmas House Coloring Pages No. 59
 ![Christmas House Coloring Pages 59](https://freecoloringpages.github.io/img/Christmas-House-Coloring-Pages%20(59).jpg "Christmas House Coloring Pages 59")

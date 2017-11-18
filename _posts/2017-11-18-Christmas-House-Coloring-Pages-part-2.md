@@ -6,7 +6,7 @@ categoties: [Coloring Pages]
 ---
 {{ page.title }}
 ================
-> This page is about [Christmas House Coloring Pages](https://freecoloringpages.github.io/). A gingerbread house is made of cookie dough, cut and baked into the appropriate shapes with which to build it. The usual material is crisp ginger biscuit made of gingerbread – the ginger nut. Another type of model-making with gingerbread uses a boiled dough that can be moulded like clay to form edible statuettes or other decorations. These houses, covered with a variety of candies and icing, are popular Christmas decorations, often built by children with the help of their parents. Source: https://wikipedia.org/
+> This page is about [Christmas House Coloring Pages](https://freecoloringpages.github.io/). A gingerbread house is made of cookie dough, cut and baked into the appropriate shapes with which to build it. The usual material is crisp ginger biscuit made of gingerbread â€“ the ginger nut. Another type of model-making with gingerbread uses a boiled dough that can be moulded like clay to form edible statuettes or other decorations. These houses, covered with a variety of candies and icing, are popular Christmas decorations, often built by children with the help of their parents. Source: https://wikipedia.org/
 
 **In the series of Christmas House Coloring Pages:**
 
@@ -49,6 +49,6 @@ categoties: [Coloring Pages]
 ## Christmas House Coloring Pages No. 19
 ![Christmas House Coloring Pages 19](https://freecoloringpages.github.io/img/Christmas-House-Coloring-Pages%20(19).jpg "Christmas House Coloring Pages 19")
 
-## Christmas House Coloring Pages No. 20
+## Christmas House Coloring Pages No.20
 ![Christmas House Coloring Pages 20](https://freecoloringpages.github.io/img/Christmas-House-Coloring-Pages%20(20).jpg "Christmas House Coloring Pages 20")
 

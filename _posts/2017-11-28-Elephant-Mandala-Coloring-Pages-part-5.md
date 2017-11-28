@@ -26,36 +26,36 @@ To download and print these, please follow instruction bellow:
 * [Elephant Mandala Coloring Pages - Part 8](https://freecoloringpages.github.io/2017/11/28/Elephant-Mandala-Coloring-Pages-part-8.html)
 
 ## Elephant Mandala Coloring Pages No. 41
-![Elephant Mandala Coloring Pages 41](https://freecoloringpages.github.io/img1/Elephant-Mandala-Coloring-Pages%20(41).jpg "Elephant Mandala Coloring Pages 41")
+![Elephant Mandala Coloring Pages 41](https://freecoloringpages.github.io/img2/Elephant-Mandala-Coloring-Pages%20(41).jpg "Elephant Mandala Coloring Pages 41")
 
 ## Elephant Mandala Coloring Pages No. 42
-![Elephant Mandala Coloring Pages 42](https://freecoloringpages.github.io/img1/Elephant-Mandala-Coloring-Pages%20(42).jpg "Elephant Mandala Coloring Pages 42")
+![Elephant Mandala Coloring Pages 42](https://freecoloringpages.github.io/img2/Elephant-Mandala-Coloring-Pages%20(42).jpg "Elephant Mandala Coloring Pages 42")
 
 ## Elephant Mandala Coloring Pages No. 43
-![Elephant Mandala Coloring Pages 43](https://freecoloringpages.github.io/img1/Elephant-Mandala-Coloring-Pages%20(43).jpg "Elephant Mandala Coloring Pages 43")
+![Elephant Mandala Coloring Pages 43](https://freecoloringpages.github.io/img2/Elephant-Mandala-Coloring-Pages%20(43).jpg "Elephant Mandala Coloring Pages 43")
 
 ## Elephant Mandala Coloring Pages No. 44
-![Elephant Mandala Coloring Pages 44](https://freecoloringpages.github.io/img1/Elephant-Mandala-Coloring-Pages%20(44).jpg "Elephant Mandala Coloring Pages 44")
+![Elephant Mandala Coloring Pages 44](https://freecoloringpages.github.io/img2/Elephant-Mandala-Coloring-Pages%20(44).jpg "Elephant Mandala Coloring Pages 44")
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
 
 ## Elephant Mandala Coloring Pages No. 45
-![Elephant Mandala Coloring Pages 45](https://freecoloringpages.github.io/img1/Elephant-Mandala-Coloring-Pages%20(45).jpg "Elephant Mandala Coloring Pages 45")
+![Elephant Mandala Coloring Pages 45](https://freecoloringpages.github.io/img2/Elephant-Mandala-Coloring-Pages%20(45).jpg "Elephant Mandala Coloring Pages 45")
 
 ## Elephant Mandala Coloring Pages No. 46
-![Elephant Mandala Coloring Pages 46](https://freecoloringpages.github.io/img1/Elephant-Mandala-Coloring-Pages%20(46).jpg "Elephant Mandala Coloring Pages 46")
+![Elephant Mandala Coloring Pages 46](https://freecoloringpages.github.io/img2/Elephant-Mandala-Coloring-Pages%20(46).jpg "Elephant Mandala Coloring Pages 46")
 
 ## Elephant Mandala Coloring Pages No. 47
-![Elephant Mandala Coloring Pages 47](https://freecoloringpages.github.io/img1/Elephant-Mandala-Coloring-Pages%20(47).jpg "Elephant Mandala Coloring Pages 47")
+![Elephant Mandala Coloring Pages 47](https://freecoloringpages.github.io/img2/Elephant-Mandala-Coloring-Pages%20(47).jpg "Elephant Mandala Coloring Pages 47")
 
 ## Elephant Mandala Coloring Pages No. 48
-![Elephant Mandala Coloring Pages 48](https://freecoloringpages.github.io/img1/Elephant-Mandala-Coloring-Pages%20(48).jpg "Elephant Mandala Coloring Pages 48")
+![Elephant Mandala Coloring Pages 48](https://freecoloringpages.github.io/img2/Elephant-Mandala-Coloring-Pages%20(48).jpg "Elephant Mandala Coloring Pages 48")
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
 
 ## Elephant Mandala Coloring Pages No. 49
-![Elephant Mandala Coloring Pages 49](https://freecoloringpages.github.io/img1/Elephant-Mandala-Coloring-Pages%20(49).jpg "Elephant Mandala Coloring Pages 49")
+![Elephant Mandala Coloring Pages 49](https://freecoloringpages.github.io/img2/Elephant-Mandala-Coloring-Pages%20(49).jpg "Elephant Mandala Coloring Pages 49")
 
 ## Elephant Mandala Coloring Pages No. 50
-![Elephant Mandala Coloring Pages 50](https://freecoloringpages.github.io/img1/Elephant-Mandala-Coloring-Pages%20(50).jpg "Elephant Mandala Coloring Pages 50")
+![Elephant Mandala Coloring Pages 50](https://freecoloringpages.github.io/img2/Elephant-Mandala-Coloring-Pages%20(50).jpg "Elephant Mandala Coloring Pages 50")
 

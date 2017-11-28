@@ -6,7 +6,7 @@ categoties: [Coloring Pages For Adults]
 ---
 {{ page.title }}
 ================
-> This page is about [Celtic Mandala Coloring Pages](https://freecoloringpages.github.io/). Celtic mandalas have increased in popularity in the past few years probably do to increased interest in connecting with the ways of our ancestors and learning more about the ways of the ancients. The desire for spiritual growth and the desire to find meaning in life is also an influence. These simple designs speak to the heart and are right at home in nearly any dÈcor. The rise in interest in adult coloring books may also contribute to the increased interest in Celtic mandalas as these designs are attractive and easy to color. [Source: http://www.mandalasforthesoul.com/](http://www.mandalasforthesoul.com/)
+> This page is about [Celtic Mandala Coloring Pages](https://freecoloringpages.github.io/). Celtic mandalas have increased in popularity in the past few years probably do to increased interest in connecting with the ways of our ancestors and learning more about the ways of the ancients. The desire for spiritual growth and the desire to find meaning in life is also an influence. These simple designs speak to the heart and are right at home in nearly any d√©cor. The rise in interest in adult coloring books may also contribute to the increased interest in Celtic mandalas as these designs are attractive and easy to color. [Source: http://www.mandalasforthesoul.com/](http://www.mandalasforthesoul.com/)
 
 To download and print these, please follow instruction bellow:
 * Right Click on the image 
@@ -47,7 +47,7 @@ To download and print these, please follow instruction bellow:
 ## Celtic Mandala Coloring Pages No. 27
 ![Celtic Mandala Coloring Pages 27](https://freecoloringpages.github.io/img1/Celtic-Mandala-Coloring-Pages%20(27).jpg "Celtic Mandala Coloring Pages 27")
 
-## Celtic Mandala Coloring Pages No. 28
+## Celtic Mandala Coloring Pages No.28
 ![Celtic Mandala Coloring Pages 28](https://freecoloringpages.github.io/img1/Celtic-Mandala-Coloring-Pages%20(28).jpg "Celtic Mandala Coloring Pages 28")
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>

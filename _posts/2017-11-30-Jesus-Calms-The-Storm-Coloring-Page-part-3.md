@@ -49,7 +49,7 @@ To download and print these, please follow instruction bellow:
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
 
-## Jesus Calms The Storm Coloring Page No. 29
+## Jesus Calms The Storm Coloring Page No.29
 ![Jesus Calms The Storm Coloring Page 29](https://freecoloringpages.github.io/img1/Jesus-Calms-The-Storm-Coloring-Page%20(29).jpg "Jesus Calms The Storm Coloring Page 29")
 
 ## Jesus Calms The Storm Coloring Page No. 30

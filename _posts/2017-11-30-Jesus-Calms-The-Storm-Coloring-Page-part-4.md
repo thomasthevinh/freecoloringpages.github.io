@@ -27,7 +27,7 @@ To download and print these, please follow instruction bellow:
 ## Jesus Calms The Storm Coloring Page No. 32
 ![Jesus Calms The Storm Coloring Page 32](https://freecoloringpages.github.io/img1/Jesus-Calms-The-Storm-Coloring-Page%20(32).jpg "Jesus Calms The Storm Coloring Page 32")
 
-## Jesus Calms The Storm Coloring Page No. 33
+## Jesus Calms The Storm Coloring Page No.33
 ![Jesus Calms The Storm Coloring Page 33](https://freecoloringpages.github.io/img1/Jesus-Calms-The-Storm-Coloring-Page%20(33).jpg "Jesus Calms The Storm Coloring Page 33")
 
 ## Jesus Calms The Storm Coloring Page No. 34

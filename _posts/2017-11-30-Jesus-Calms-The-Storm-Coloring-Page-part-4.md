@@ -6,7 +6,7 @@ categoties: [Coloring Pages]
 ---
 {{ page.title }}
 ================
-> This page is about [Jesus Calms The Storm Coloring Page](https://freecoloringpages.github.io/). 35 That day when evening came, he said to his disciples, 'Let us go over to the other side.' 36 Leaving the crowd behind, they took him along, just as he was, in the boat. There were also other boats with him. 37 A furious squall came up, and the waves broke over the boat, so that it was nearly swamped. 38 Jesus was in the stern, sleeping on a cushion. The disciples woke him and said to him, 'Teacher, don’t you care if we drown?'\n 39 He got up, rebuked the wind and said to the waves, 'Quiet! Be still!' Then the wind died down and it was completely calm.\n 40 He said to his disciples, 'Why are you so afraid? Do you still have no faith?' \n 41 They were terrified and asked each other, 'Who is this? Even the wind and the waves obey him!' [Source: https://www.biblegateway.com/](https://www.biblegateway.com/)
+> This page is about [Jesus Calms The Storm Coloring Page](https://freecoloringpages.github.io/). 35 That day when evening came, he said to his disciples, 'Let us go over to the other side.' 36 Leaving the crowd behind, they took him along, just as he was, in the boat. There were also other boats with him. 37 A furious squall came up, and the waves broke over the boat, so that it was nearly swamped. 38 Jesus was in the stern, sleeping on a cushion. The disciples woke him and said to him, 'Teacher, donâ€™t you care if we drown?'\n 39 He got up, rebuked the wind and said to the waves, 'Quiet! Be still!' Then the wind died down and it was completely calm.\n 40 He said to his disciples, 'Why are you so afraid? Do you still have no faith?' \n 41 They were terrified and asked each other, 'Who is this? Even the wind and the waves obey him!' [Source: https://www.biblegateway.com/](https://www.biblegateway.com/)
 
 To download and print these, please follow instruction bellow:
 * Right Click on the image 
@@ -35,7 +35,7 @@ To download and print these, please follow instruction bellow:
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
 
-## Jesus Calms The Storm Coloring Page No. 35
+## Jesus Calms The Storm Coloring Page No.35
 ![Jesus Calms The Storm Coloring Page 35](https://freecoloringpages.github.io/img1/Jesus-Calms-The-Storm-Coloring-Page%20(35).jpg "Jesus Calms The Storm Coloring Page 35")
 
 ## Jesus Calms The Storm Coloring Page No. 36

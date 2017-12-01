@@ -6,7 +6,7 @@ categoties: [Coloring Pages]
 ---
 {{ page.title }}
 ================
-> This page is about [Owl Valentines Coloring Pages](https://freecoloringpages.github.io/). Owls have special adaptations which help them swivel their heads 270 degrees. They have 14 neck vertebrae instead of our seven. Also, the big carotid arteries, instead of being on the side of the neck as in humans, are carried close to the centre of rotation just in front of the spine. So these arteries get much less twisting and stretching, and the potential for damage is greatly reduced. This arrangement is seen in other birds, but in owls the vertebral arteries â€“ the vessels that travel through channels in the neck bones â€“ are given extra space. [Source: https://simple.wikipedia.org/](https://simple.wikipedia.org/)
+> This page is about [Owl Valentines Coloring Pages](https://freecoloringpages.github.io/). Owls have special adaptations which help them swivel their heads 270 degrees. They have 14 neck vertebrae instead of our seven. Also, the big carotid arteries, instead of being on the side of the neck as in humans, are carried close to the centre of rotation just in front of the spine. So these arteries get much less twisting and stretching, and the potential for damage is greatly reduced. This arrangement is seen in other birds, but in owls the vertebral arteries – the vessels that travel through channels in the neck bones – are given extra space. [Source: https://simple.wikipedia.org/](https://simple.wikipedia.org/)
 
 To download and print these, please follow instruction bellow:
 * Right Click on the image 
@@ -16,10 +16,10 @@ To download and print these, please follow instruction bellow:
 
 **In the series of Owl Valentines Coloring Pages:**
 
-* [Owl Valentines Coloring Pages - Part 1](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-1.html)
-* [Owl Valentines Coloring Pages - Part 2](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-2.html)
-* [Owl Valentines Coloring Pages - Part 3](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-3.html)
-* [Owl Valentines Coloring Pages - Part 4](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-4.html)
+* [Owl Valentines Coloring Pages - Part 1](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-1.html)
+* [Owl Valentines Coloring Pages - Part 2](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-2.html)
+* [Owl Valentines Coloring Pages - Part 3](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-3.html)
+* [Owl Valentines Coloring Pages - Part 4](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-4.html)
 
 ## Owl Valentines Coloring Pages No. 1
 ![Owl Valentines Coloring Pages 1](https://freecoloringpages.github.io/img2/Owl-Valentines-Coloring-Pages%20(1).jpg "Owl Valentines Coloring Pages 1")
@@ -57,8 +57,8 @@ To download and print these, please follow instruction bellow:
 
 **More related posts of Owl Valentines Coloring Pages:**
 
-* [Owl Valentines Coloring Pages - Part 1](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-1.html)
-* [Owl Valentines Coloring Pages - Part 2](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-2.html)
-* [Owl Valentines Coloring Pages - Part 3](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-3.html)
-* [Owl Valentines Coloring Pages - Part 4](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-4.html)
+* [Owl Valentines Coloring Pages - Part 1](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-1.html)
+* [Owl Valentines Coloring Pages - Part 2](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-2.html)
+* [Owl Valentines Coloring Pages - Part 3](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-3.html)
+* [Owl Valentines Coloring Pages - Part 4](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-4.html)
 

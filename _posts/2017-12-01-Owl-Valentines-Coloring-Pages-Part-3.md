@@ -16,10 +16,10 @@ To download and print these, please follow instruction bellow:
 
 **In the series of Owl Valentines Coloring Pages:**
 
-* [Owl Valentines Coloring Pages - Part 1](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-1.html)
-* [Owl Valentines Coloring Pages - Part 2](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-2.html)
-* [Owl Valentines Coloring Pages - Part 3](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-3.html)
-* [Owl Valentines Coloring Pages - Part 4](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-4.html)
+* [Owl Valentines Coloring Pages - Part 1](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-1.html)
+* [Owl Valentines Coloring Pages - Part 2](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-2.html)
+* [Owl Valentines Coloring Pages - Part 3](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-3.html)
+* [Owl Valentines Coloring Pages - Part 4](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-4.html)
 
 ## Owl Valentines Coloring Pages No. 21
 ![Owl Valentines Coloring Pages 21](https://freecoloringpages.github.io/img2/Owl-Valentines-Coloring-Pages%20(21).jpg "Owl Valentines Coloring Pages 21")
@@ -57,8 +57,8 @@ To download and print these, please follow instruction bellow:
 
 **More related posts of Owl Valentines Coloring Pages:**
 
-* [Owl Valentines Coloring Pages - Part 1](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-1.html)
-* [Owl Valentines Coloring Pages - Part 2](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-2.html)
-* [Owl Valentines Coloring Pages - Part 3](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-3.html)
-* [Owl Valentines Coloring Pages - Part 4](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-part-4.html)
+* [Owl Valentines Coloring Pages - Part 1](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-1.html)
+* [Owl Valentines Coloring Pages - Part 2](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-2.html)
+* [Owl Valentines Coloring Pages - Part 3](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-3.html)
+* [Owl Valentines Coloring Pages - Part 4](https://freecoloringpages.github.io/2017/12/01/Owl-Valentines-Coloring-Pages-Part-4.html)
 

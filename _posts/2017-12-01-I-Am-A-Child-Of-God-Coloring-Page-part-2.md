@@ -6,7 +6,7 @@ categoties: [Coloring Pages]
 ---
 {{ page.title }}
 ================
-> This page is about [I Am A Child Of God Coloring Page](https://freecoloringpages.github.io/). Randall composed the first three verses of 'I Am a Child of God' at the request of the general board of the Primary Association, of which she was a member. The board wanted a song that could teach children about LDS Church teachings on the nature of a child's relationship with God. Randall described how she composed the song: \n I got down on my knees and prayed aloud, pleading that our Heavenly Father would let me know the right words. \n Around 2:00 a.m., I awakened and began to think again about the song. Words came to my mind. … I immediately got up and began to write the words down as they had come to me. Three verses and a chorus were soon formed. \n I gratefully surveyed the work, drank of the message of the words, and returned to my bedroom where I knelt before my Father in Heaven to say 'Thank you!' [Source: https://en.wikipedia.org/](https://en.wikipedia.org/)
+> This page is about [I Am A Child Of God Coloring Page](https://freecoloringpages.github.io/). Randall composed the first three verses of 'I Am a Child of God' at the request of the general board of the Primary Association, of which she was a member. The board wanted a song that could teach children about LDS Church teachings on the nature of a child's relationship with God. Randall described how she composed the song: \n I got down on my knees and prayed aloud, pleading that our Heavenly Father would let me know the right words. \n Around 2:00 a.m., I awakened and began to think again about the song. Words came to my mind. â€¦ I immediately got up and began to write the words down as they had come to me. Three verses and a chorus were soon formed. \n I gratefully surveyed the work, drank of the message of the words, and returned to my bedroom where I knelt before my Father in Heaven to say 'Thank you!' [Source: https://en.wikipedia.org/](https://en.wikipedia.org/)
 
 To download and print these, please follow instruction bellow:
 * Right Click on the image 
@@ -23,7 +23,7 @@ To download and print these, please follow instruction bellow:
 ## I Am A Child Of God Coloring Page No. 11
 ![I Am A Child Of God Coloring Page 11](https://freecoloringpages.github.io/img1/I-Am-A-Child-Of-God-Coloring-Page%20(11).jpg "I Am A Child Of God Coloring Page 11")
 
-## I Am A Child Of God Coloring Page No. 12
+## I Am A Child Of God Coloring Page No.12
 ![I Am A Child Of God Coloring Page 12](https://freecoloringpages.github.io/img1/I-Am-A-Child-Of-God-Coloring-Page%20(12).jpg "I Am A Child Of God Coloring Page 12")
 
 ## I Am A Child Of God Coloring Page No. 13

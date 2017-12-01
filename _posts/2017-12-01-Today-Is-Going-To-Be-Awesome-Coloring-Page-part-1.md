@@ -6,7 +6,7 @@ categoties: [Coloring Pages]
 ---
 {{ page.title }}
 ================
-> This page is about [Today Is Going To Be Awesome Coloring Page](https://freecoloringpages.github.io/). Basically what this means is that right this second, something awesome is happening to someone in the world. Yes I know you’re stuck here reading this article and wishing you were outside playing in the sun (or whatever it is you do with your spare time), but when you stop and really think about it, at any point you could create a memory that will stick with you for the rest of your life. These memories are created in the here and now so what are you going to do? [Source: https://www.pickthebrain.com/](https://www.pickthebrain.com/)
+> This page is about [Today Is Going To Be Awesome Coloring Page](https://freecoloringpages.github.io/). Basically what this means is that right this second, something awesome is happening to someone in the world. Yes I know youâ€™re stuck here reading this article and wishing you were outside playing in the sun (or whatever it is you do with your spare time), but when you stop and really think about it, at any point you could create a memory that will stick with you for the rest of your life. These memories are created in the here and now so what are you going to do? [Source: https://www.pickthebrain.com/](https://www.pickthebrain.com/)
 
 To download and print these, please follow instruction bellow:
 * Right Click on the image 
@@ -36,7 +36,7 @@ To download and print these, please follow instruction bellow:
 ## Today Is Going To Be Awesome Coloring Page No. 5
 ![Today Is Going To Be Awesome Coloring Page 5](https://freecoloringpages.github.io/img2/Today-Is-Going-To-Be-Awesome-Coloring-Page%20(5).jpg "Today Is Going To Be Awesome Coloring Page 5")
 
-## Today Is Going To Be Awesome Coloring Page No. 6
+## Today Is Going To Be Awesome Coloring Page No.6
 ![Today Is Going To Be Awesome Coloring Page 6](https://freecoloringpages.github.io/img2/Today-Is-Going-To-Be-Awesome-Coloring-Page%20(6).jpg "Today Is Going To Be Awesome Coloring Page 6")
 
 ## Today Is Going To Be Awesome Coloring Page No. 7

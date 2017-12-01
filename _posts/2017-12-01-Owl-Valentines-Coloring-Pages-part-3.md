@@ -38,7 +38,7 @@ To download and print these, please follow instruction bellow:
 ## Owl Valentines Coloring Pages No. 25
 ![Owl Valentines Coloring Pages 25](https://freecoloringpages.github.io/img2/Owl-Valentines-Coloring-Pages%20(25).jpg "Owl Valentines Coloring Pages 25")
 
-## Owl Valentines Coloring Pages No. 26
+## Owl Valentines Coloring Pages No.26
 ![Owl Valentines Coloring Pages 26](https://freecoloringpages.github.io/img2/Owl-Valentines-Coloring-Pages%20(26).jpg "Owl Valentines Coloring Pages 26")
 
 ## Owl Valentines Coloring Pages No. 27

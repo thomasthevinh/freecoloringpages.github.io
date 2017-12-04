@@ -24,38 +24,38 @@ To download and print these, please follow instruction bellow:
 * [Daniel In The Lion'S Den Coloring Page - Part 6](https://freecoloringpages.github.io/2017/12/04/Daniel-In-The-Lion'S-Den-Coloring-Page-part-6.html)
 
 ## Daniel In The Lion'S Den Coloring Page No. 1
-![Daniel In The Lion'S Den Coloring Page 1](https://freecoloringpages.github.io/img2/Daniel-In-The-Lion'S-Den-Coloring-Page%20(1).jpg "Daniel In The Lion'S Den Coloring Page 1")
+![Daniel In The Lion'S Den Coloring Page 1](https://freecoloringpages.github.io/img3/Daniel-In-The-Lion'S-Den-Coloring-Page%20(1).jpg "Daniel In The Lion'S Den Coloring Page 1")
 
 ## Daniel In The Lion'S Den Coloring Page No. 2
-![Daniel In The Lion'S Den Coloring Page 2](https://freecoloringpages.github.io/img2/Daniel-In-The-Lion'S-Den-Coloring-Page%20(2).jpg "Daniel In The Lion'S Den Coloring Page 2")
+![Daniel In The Lion'S Den Coloring Page 2](https://freecoloringpages.github.io/img3/Daniel-In-The-Lion'S-Den-Coloring-Page%20(2).jpg "Daniel In The Lion'S Den Coloring Page 2")
 
 ## Daniel In The Lion'S Den Coloring Page No. 3
-![Daniel In The Lion'S Den Coloring Page 3](https://freecoloringpages.github.io/img2/Daniel-In-The-Lion'S-Den-Coloring-Page%20(3).jpg "Daniel In The Lion'S Den Coloring Page 3")
+![Daniel In The Lion'S Den Coloring Page 3](https://freecoloringpages.github.io/img3/Daniel-In-The-Lion'S-Den-Coloring-Page%20(3).jpg "Daniel In The Lion'S Den Coloring Page 3")
 
 ## Daniel In The Lion'S Den Coloring Page No. 4
-![Daniel In The Lion'S Den Coloring Page 4](https://freecoloringpages.github.io/img2/Daniel-In-The-Lion'S-Den-Coloring-Page%20(4).jpg "Daniel In The Lion'S Den Coloring Page 4")
+![Daniel In The Lion'S Den Coloring Page 4](https://freecoloringpages.github.io/img3/Daniel-In-The-Lion'S-Den-Coloring-Page%20(4).jpg "Daniel In The Lion'S Den Coloring Page 4")
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
 
 ## Daniel In The Lion'S Den Coloring Page No. 5
-![Daniel In The Lion'S Den Coloring Page 5](https://freecoloringpages.github.io/img2/Daniel-In-The-Lion'S-Den-Coloring-Page%20(5).jpg "Daniel In The Lion'S Den Coloring Page 5")
+![Daniel In The Lion'S Den Coloring Page 5](https://freecoloringpages.github.io/img3/Daniel-In-The-Lion'S-Den-Coloring-Page%20(5).jpg "Daniel In The Lion'S Den Coloring Page 5")
 
 ## Daniel In The Lion'S Den Coloring Page No. 6
-![Daniel In The Lion'S Den Coloring Page 6](https://freecoloringpages.github.io/img2/Daniel-In-The-Lion'S-Den-Coloring-Page%20(6).jpg "Daniel In The Lion'S Den Coloring Page 6")
+![Daniel In The Lion'S Den Coloring Page 6](https://freecoloringpages.github.io/img3/Daniel-In-The-Lion'S-Den-Coloring-Page%20(6).jpg "Daniel In The Lion'S Den Coloring Page 6")
 
 ## Daniel In The Lion'S Den Coloring Page No. 7
-![Daniel In The Lion'S Den Coloring Page 7](https://freecoloringpages.github.io/img2/Daniel-In-The-Lion'S-Den-Coloring-Page%20(7).jpg "Daniel In The Lion'S Den Coloring Page 7")
+![Daniel In The Lion'S Den Coloring Page 7](https://freecoloringpages.github.io/img3/Daniel-In-The-Lion'S-Den-Coloring-Page%20(7).jpg "Daniel In The Lion'S Den Coloring Page 7")
 
 ## Daniel In The Lion'S Den Coloring Page No. 8
-![Daniel In The Lion'S Den Coloring Page 8](https://freecoloringpages.github.io/img2/Daniel-In-The-Lion'S-Den-Coloring-Page%20(8).jpg "Daniel In The Lion'S Den Coloring Page 8")
+![Daniel In The Lion'S Den Coloring Page 8](https://freecoloringpages.github.io/img3/Daniel-In-The-Lion'S-Den-Coloring-Page%20(8).jpg "Daniel In The Lion'S Den Coloring Page 8")
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
 
 ## Daniel In The Lion'S Den Coloring Page No. 9
-![Daniel In The Lion'S Den Coloring Page 9](https://freecoloringpages.github.io/img2/Daniel-In-The-Lion'S-Den-Coloring-Page%20(9).jpg "Daniel In The Lion'S Den Coloring Page 9")
+![Daniel In The Lion'S Den Coloring Page 9](https://freecoloringpages.github.io/img3/Daniel-In-The-Lion'S-Den-Coloring-Page%20(9).jpg "Daniel In The Lion'S Den Coloring Page 9")
 
 ## Daniel In The Lion'S Den Coloring Page No. 10
-![Daniel In The Lion'S Den Coloring Page 10](https://freecoloringpages.github.io/img2/Daniel-In-The-Lion'S-Den-Coloring-Page%20(10).jpg "Daniel In The Lion'S Den Coloring Page 10")
+![Daniel In The Lion'S Den Coloring Page 10](https://freecoloringpages.github.io/img3/Daniel-In-The-Lion'S-Den-Coloring-Page%20(10).jpg "Daniel In The Lion'S Den Coloring Page 10")
 
 **More related posts of Daniel In The Lion'S Den Coloring Page:**
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Strawberry Colouring Page - Part 3
-subtitle: Free and Printable Strawberry Colouring Page - Part 3
+title: Strawberry Colouring Page - Part 8
+subtitle: Free and Printable Strawberry Colouring Page - Part 8
 categoties: [Colouring Pages]
 ---
 {{ page.title }}
@@ -27,37 +27,31 @@ To download and print these, please follow instruction bellow:
 * [Strawberry Colouring Page - Part 7](https://freecoloringpages.github.io/2017/12/05/Strawberry-Colouring-Page-part-7.html)
 * [Strawberry Colouring Page - Part 8](https://freecoloringpages.github.io/2017/12/05/Strawberry-Colouring-Page-part-8.html)
 
-## Strawberry Colouring Page No. 21
-![Strawberry Colouring Page 21](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(21).jpg "Strawberry Colouring Page 21")
+## Strawberry Colouring Page No. 71
+![Strawberry Colouring Page 71](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(71).jpg "Strawberry Colouring Page 71")
 
-## Strawberry Colouring Page No. 22
-![Strawberry Colouring Page 22](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(22).jpg "Strawberry Colouring Page 22")
+## Strawberry Colouring Page No. 72
+![Strawberry Colouring Page 72](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(72).jpg "Strawberry Colouring Page 72")
 
-## Strawberry Colouring Page No. 23
-![Strawberry Colouring Page 23](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(23).jpg "Strawberry Colouring Page 23")
+## Strawberry Colouring Page No. 73
+![Strawberry Colouring Page 73](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(73).jpg "Strawberry Colouring Page 73")
 
-## Strawberry Colouring Page No. 24
-![Strawberry Colouring Page 24](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(24).jpg "Strawberry Colouring Page 24")
+## Strawberry Colouring Page No. 74
+![Strawberry Colouring Page 74](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(74).jpg "Strawberry Colouring Page 74")
 
-## Strawberry Colouring Page No. 25
-![Strawberry Colouring Page 25](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(25).jpg "Strawberry Colouring Page 25")
+## Strawberry Colouring Page No. 75
+![Strawberry Colouring Page 75](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(75).jpg "Strawberry Colouring Page 75")
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
 
-## Strawberry Colouring Page No. 26
-![Strawberry Colouring Page 26](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(26).jpg "Strawberry Colouring Page 26")
+## Strawberry Colouring Page No. 76
+![Strawberry Colouring Page 76](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(76).jpg "Strawberry Colouring Page 76")
 
-## Strawberry Colouring Page No. 27
-![Strawberry Colouring Page 27](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(27).jpg "Strawberry Colouring Page 27")
+## Strawberry Colouring Page No. 77
+![Strawberry Colouring Page 77](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(77).jpg "Strawberry Colouring Page 77")
 
-## Strawberry Colouring Page No. 28
-![Strawberry Colouring Page 28](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(28).jpg "Strawberry Colouring Page 28")
-
-## Strawberry Colouring Page No. 29
-![Strawberry Colouring Page 29](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(29).jpg "Strawberry Colouring Page 29")
-
-## Strawberry Colouring Page No. 30
-![Strawberry Colouring Page 30](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(30).jpg "Strawberry Colouring Page 30")
+## Strawberry Colouring Page No. 78
+![Strawberry Colouring Page 78](https://freecoloringpages.github.io/img3/Strawberry-Colouring-Page%20(78).jpg "Strawberry Colouring Page 78")
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
 

@@ -8,7 +8,7 @@ categoties: [Pokemon Coloring Pages]
 ================
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- UnderTitleAds --> <ins class="adsbygoogle" style="display:inline-block;width:468px;height:60px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="4010138290"></ins><script> (adsbygoogle = window.adsbygoogle || []).push({}); </script>
 
-> This page is about [Pokemon Coloring Pages Eevee Evolutions](https://freecoloringpages.github.io/). Eevee, known in Japan as Eievui, is a PokÈmon species in Nintendo and Game Freak's PokÈmon franchise. Created by Ken Sugimori, It first appeared in the video games PokÈmon Red and Blue. It has later appeared in various merchandise, spinoff titles, and animated and printed adaptations of the franchise. Known as the Evolution PokÈmon in the games and the anime, Eevee is a rabbit-eared feline-like PokÈmon with an unstable genetic code, which allows it to evolve into eight different PokÈmon depending on the situation, which are informally known as 'Eeveelutions', and characterized by the 'Ev' in the spelling. The first three of these evolutions, Vaporeon, Jolteon, and Flareon, are the result of the PokÈmon being exposed to either a Water Stone, a Thunder Stone, or a Fire Stone respectively, hence the additional 3 'E' 's in the spelling. Various evolutions have been introduced in PokÈmon games since, including Espeon, Umbreon, Leafeon, Glaceon, and Sylveon. [Source: https://en.wikipedia.org/](https://en.wikipedia.org/)
+> This page is about [Pokemon Coloring Pages Eevee Evolutions](https://freecoloringpages.github.io/). Eevee, known in Japan as Eievui, is a Pok√©mon species in Nintendo and Game Freak's Pok√©mon franchise. Created by Ken Sugimori, It first appeared in the video games Pok√©mon Red and Blue. It has later appeared in various merchandise, spinoff titles, and animated and printed adaptations of the franchise. Known as the Evolution Pok√©mon in the games and the anime, Eevee is a rabbit-eared feline-like Pok√©mon with an unstable genetic code, which allows it to evolve into eight different Pok√©mon depending on the situation, which are informally known as 'Eeveelutions', and characterized by the 'Ev' in the spelling. The first three of these evolutions, Vaporeon, Jolteon, and Flareon, are the result of the Pok√©mon being exposed to either a Water Stone, a Thunder Stone, or a Fire Stone respectively, hence the additional 3 'E' 's in the spelling. Various evolutions have been introduced in Pok√©mon games since, including Espeon, Umbreon, Leafeon, Glaceon, and Sylveon. [Source: https://en.wikipedia.org/](https://en.wikipedia.org/)
 
 To download and print these, please follow instruction bellow:
 * Right Click on the image 
@@ -51,7 +51,7 @@ To download and print these, please follow instruction bellow:
 ## Pokemon Coloring Pages Eevee Evolutions No. 8
 ![Pokemon Coloring Pages Eevee Evolutions 8](https://freecoloringpages.github.io/img3/Pokemon-Coloring-Pages-Eevee-Evolutions%20(8).jpg "Pokemon Coloring Pages Eevee Evolutions 8")
 
-## Pokemon Coloring Pages Eevee Evolutions No. 9
+## Pokemon Coloring Pages Eevee Evolutions No.9
 ![Pokemon Coloring Pages Eevee Evolutions 9](https://freecoloringpages.github.io/img3/Pokemon-Coloring-Pages-Eevee-Evolutions%20(9).jpg "Pokemon Coloring Pages Eevee Evolutions 9")
 
 ## Pokemon Coloring Pages Eevee Evolutions No. 10

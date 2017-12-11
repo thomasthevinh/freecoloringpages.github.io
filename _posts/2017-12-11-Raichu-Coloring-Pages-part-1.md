@@ -58,12 +58,6 @@ To download and print these, please follow instruction bellow:
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
 
-## Raichu Coloring Pages No. 11
-![Raichu Coloring Pages 11](https://freecoloringpages.github.io/img4/Raichu-Coloring-Pages%20(11).jpg "Raichu Coloring Pages 11")
-
-## Raichu Coloring Pages No. 12
-![Raichu Coloring Pages 12](https://freecoloringpages.github.io/img4/Raichu-Coloring-Pages%20(12).jpg "Raichu Coloring Pages 12")
-
 **More related posts of Raichu Coloring Pages:**
 
 * [Raichu Coloring Pages - Part 1](https://freecoloringpages.github.io/2017/12/11/Raichu-Coloring-Pages-part-1.html)

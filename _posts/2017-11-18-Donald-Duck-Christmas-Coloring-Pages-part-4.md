@@ -2,7 +2,7 @@
 layout: post
 title: Donald Duck Christmas Coloring Pages - Part 4
 subtitle: Free and Printable Donald Duck Christmas Coloring Pages - Part 4
-categoties: [Coloring Pages]
+category: [Coloring]
 ---
 {{ page.title }}
 ================

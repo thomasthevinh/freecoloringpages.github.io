@@ -2,7 +2,7 @@
 layout: post
 title: I Love You To The Moon And Back Coloring Pages - Part 1
 subtitle: Free and Printable I Love You To The Moon And Back Coloring Pages - Part 1
-categoties: [Coloring Pages]
+category: [Coloring]
 ---
 {{ page.title }}
 ================

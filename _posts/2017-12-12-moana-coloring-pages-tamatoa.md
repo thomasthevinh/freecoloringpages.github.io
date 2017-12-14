@@ -1,8 +1,12 @@
 ---
 layout: post
 title: Moana Coloring Page - Tamatoa
-subtitle: Free and Printable Moana Coloring Page
-categoties: [Moana]
+desc: Free and Printable Moana Coloring Page
+categories: 
+- Moana-coloring-pages
+tags:
+- Moana
+- Tamatoa
 ---
 {{ page.title }}
 ================
